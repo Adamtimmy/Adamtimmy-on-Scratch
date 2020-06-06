@@ -1,2 +1,2 @@
 # Adamtimmy-on-Scratch
-<p>Do you have any questions for Adamtimmy? Comment on their profile to contact them! Make sure to check out their latest projects!</p>
+Do you have any questions for Adamtimmy? Comment on their profile to contact them! Make sure to follow me on Adamtimmy and check out our latest projects!
